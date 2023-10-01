@@ -67,7 +67,7 @@ Image 7: A heartwarming image of families and friends sharing and cherishing our
 > Kingston 10
 > Jamaica, W.I.
 
-### <u>Watch the followinf video to see more of what can be done with a CNC Mahine</u>
+#### <u>Watch the following video to see more of what can be done with a CNC Mahine</u>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CuRi2wfsbRI?si=uXkd6DjXYzaYEwB1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
