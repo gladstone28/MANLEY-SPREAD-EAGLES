@@ -60,13 +60,13 @@ Spread Eagles Industries has always been a beacon of quality and innovation in t
 Image 7: A heartwarming image of families and friends sharing and cherishing our custom-made products during celebratory moments.
 
 ##### <u>Join us in crafting the future of personalized wooden novelties!</u>
-```
-Contact Details:
-Spread Eagles Industries
-10 Robinson Road
-Kingston 10
-Jamaica, W.I.
-```
+
+> Contact Details:
+> Spread Eagles Industries
+> 10 Robinson Road
+> Kingston 10
+> Jamaica, W.I.
+
 
 Remember, along with the text and images, using quality design elements, a coherent color scheme, and ensuring readability will make this pitch even more compelling to potential investors.
 
