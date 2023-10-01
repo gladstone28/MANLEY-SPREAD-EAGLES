@@ -1,6 +1,5 @@
 ### <u>Spread Eagles Industries: Novelty Department Investment Pitch</u>
 
-Image 1: An aerial view of the expansive Spread Eagles Industries furniture manufacturing facility.
 
 ## <u>Introduction</u>
 

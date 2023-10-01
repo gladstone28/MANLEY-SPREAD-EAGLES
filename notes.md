@@ -7,6 +7,7 @@ What is an engraving machine?
 https://virmer.com/what-is-a-laser-engraving-machine-for-wood/
 
 remember to add the following
+Image 1: An aerial view of the expansive Spread Eagles Industries furniture manufacturing facility.
 
 Image 6: A projection graph showcasing the estimated growth in sales and market reach upon acquiring the machines.
 
