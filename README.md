@@ -51,13 +51,10 @@ https://www.youtube.com/watch?v=EvBrQWtaWxI
 - Customization requests can be fulfilled in record time.
 - We can reach new markets and customers, from corporate gifts to wedding memorabilia.
 
-Image 6: A projection graph showcasing the estimated growth in sales and market reach upon acquiring the machines.
 
 ### <u>Conclusion</u>
 
 Spread Eagles Industries has always been a beacon of quality and innovation in the furniture industry. By supporting our Novelty Department's vision, you're not just investing in machinery; you're investing in countless moments of joy, memories, and personalized treasures for people around the world.
-
-Image 7: A heartwarming image of families and friends sharing and cherishing our custom-made products during celebratory moments.
 
 ##### <u>Join us in crafting the future of personalized wooden novelties!</u>
 

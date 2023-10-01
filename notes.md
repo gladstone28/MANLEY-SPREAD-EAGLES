@@ -6,7 +6,11 @@ What is an engraving machine?
 
 https://virmer.com/what-is-a-laser-engraving-machine-for-wood/
 
+remember to add the following
 
+Image 6: A projection graph showcasing the estimated growth in sales and market reach upon acquiring the machines.
+
+Image 7: A heartwarming image of families and friends sharing and cherishing our custom-made products during celebratory moments.
 
 memory jog:
 
