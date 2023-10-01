@@ -6,7 +6,8 @@
 Spread Eagles Industries, renowned for its premium furniture craftsmanship, is expanding its horizon. We're proud to unveil our Novelty Department, dedicated to the creation of handcrafted wooden products, both as timeless keepsakes and customizable treasures. Trophies to capture lifetime achievements. Picture Frames that enhances priceless pictures and certificates, etc.
 
 ![](https://cdn.shopify.com/s/files/1/0173/9894/files/Easter_large.jpg?1690)
-Image 2: Montage of the new product range – Gift Pens, Picture Frames, Plaques, Trophies, Awards.
+
+**Montage of the new product range – Gift Pens, Picture Frames, Plaques, Trophies, Awards.**
 
 ### <u>The Vision</u>
 
@@ -14,7 +15,7 @@ Imagine a birthday gift that narrates a story, a Valentine's Day pen that carrie
 
 ![](https://aranawards.com/wp-content/uploads/2020/02/plaque-300x221.jpg)
 
-Image 3: Happy customers receiving personalized gifts during various occasions – Birthdays, Christmas, New Year, etc.
+**Happy customers receiving personalized gifts during various occasions – Birthdays, Christmas, New Year, etc.**
 
 ![](https://media.istockphoto.com/id/1296269335/photo/chinese-new-year-multi-generation-family-sitting-on-sofa-living-room-looking-at-camera.webp?b=1&s=170667a&w=0&k=20&c=QPVUgNTX2sf0N2KUxjFLWXtEMzdu37bicHlnmHeiBSY=)
 
@@ -36,7 +37,8 @@ Image 4: There is a rise in demand for personalized wooden products over recent 
 - Miscellaneous Equipment: To bolster our manufacturing and customization processes.
 
 ![](https://m.media-amazon.com/images/I/81pW0ftlMIL._AC_UF1000,1000_QL80_.jpg)
-Image 5: A sleek visualization of the laser engraving machine and CNC machine, with close-ups of the detailed work they can produce.
+
+**A sleek visualization of the laser engraving machine and CNC machine, with close-ups of the detailed work they can produce.**
 
 https://www.youtube.com/watch?v=EvBrQWtaWxI
 
@@ -55,7 +57,7 @@ https://www.youtube.com/watch?v=EvBrQWtaWxI
 
 Spread Eagles Industries has always been a beacon of quality and innovation in the furniture industry. By supporting our Novelty Department's vision, you're not just investing in machinery; you're investing in countless moments of joy, memories, and personalized treasures for people around the world.
 
-##### <u>Join us in crafting the future of personalized wooden novelties!</u>
+#### <u>Join us in crafting the future of personalized wooden novelties!</u>
 
 > Contact Details:
 > Spread Eagles Industries
