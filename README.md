@@ -1,4 +1,4 @@
-### <u>Spread Eagles Industries: Novelty Department Investment Pitch</u>
+### <u>Spread Eagles Industries: Novelty Department Investment Plans</u>
 
 
 ## <u>Introduction</u>
